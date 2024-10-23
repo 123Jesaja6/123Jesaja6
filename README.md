@@ -1,0 +1,6 @@
+- 👋 Hi, I’m: @123Jesaja6
+- 👀 I’m interested in: Roblox Developing
+- 🌱 I’m currently learning: Scripting
+- 📫 How to reach me: Email: fudgewithcream@gmail.com
+- ⚡ Fun fact: I like playing games
+- Would also appreciate it if you followed me on roblox to help grow my business, Roblox Username: 123Jesaja6
